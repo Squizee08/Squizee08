@@ -1,3 +1,1 @@
-Working at Preach:
-https://discord.gg/projectpreach 
---------------------------------
+https://discord.gg/projectpreach
